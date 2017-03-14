@@ -1,0 +1,1 @@
+yaata-sms-privacy-policy
